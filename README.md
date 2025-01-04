@@ -1,5 +1,3 @@
-Here are a few Sukoon descriptions for a therapy website:
-
 Short & Sweet:
 
 "Find peace. Find Sukoon."
